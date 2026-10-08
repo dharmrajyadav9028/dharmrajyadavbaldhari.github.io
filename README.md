@@ -8,4 +8,3 @@ Projects:
 Contact: Paid Script Work - DM on Instagram
 Location: Azamgarh, UP
 Email dharmrajyadav9028@gmail.com 
-Contact number+919028927560
